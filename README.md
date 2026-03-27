@@ -66,12 +66,11 @@ a.   KVL:
 
 b.  KCL:
 
+![image](https://github.com/knowkash007-max/EXP-1/blob/main/WhatsApp%20Image%202026-03-27%20at%209.37.40%20PM.jpeg)
 
 
 
-![image](![WhatsApp Image 2026-03-27 at 9 37 40 PM](https://github.com/user-attachments/assets/3aa0a754-b7b1-4e08-9eed-9338c8d09adf)
-![image](![WhatsApp Image 2026-03-27 at 9 37 58 PM (1)](https://github.com/user-attachments/assets/f724dc54-4680-4a1f-bfb7-ff61286c7201)
-![image](![WhatsApp Image 2026-03-27 at 9 37 58 PM](https://github.com/user-attachments/assets/d038381c-1461-4a58-b8f4-035e4dd5b90d)
+
 
 
 
