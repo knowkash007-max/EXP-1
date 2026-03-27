@@ -68,7 +68,7 @@ b.  KCL:
 
 ![image](https://github.com/knowkash007-max/EXP-1/blob/main/WhatsApp%20Image%202026-03-27%20at%209.37.40%20PM.jpeg)
 ![image](https://github.com/knowkash007-max/EXP-1/blob/main/WhatsApp%20Image%202026-03-27%20at%209.37.58%20PM%20(1).jpeg)
-
+![image](https://github.com/knowkash007-max/EXP-1/blob/main/WhatsApp%20Image%202026-03-27%20at%209.37.58%20PM.jpeg)
 
 
 
